@@ -49,11 +49,12 @@
 - *Traditional & Digital Drawing, Painting*
 - *Color Theory, Composition, Light & Shadow*
 - *Music Theory, Reading/Writing Sheet Music, Minor Experience in Multiple Instruments (Clarinet, Violin, Piano, Singing, EDM)
+- *Linguistics, Philosophy, (STUDY OF) Religion, Art History*
 - *Semi-Professional Gaming including:*
   - *CE as part of 20 man team in WoW*
   - *Platinum in LoL & SC3*
   - *Top 100 world in virtually every song in multiple VR rhythm games: (PS4) Beat Saber, (Steam) Pistol Whip, Synth Riders, Audio Trip, Ragnarok*
-- *Motorcycling - **HAYABUSA***
+- *Motorcycling on my **HAYABUSA***
 - *Camping & Kayaking*
 - *Cooking including Braking, Grilling, Smoking, Making Hot Sauces, etc.*
 
