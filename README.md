@@ -1,6 +1,9 @@
 # Azmo Rinsler
 ## Software Developer, Architect, Engineer
 
+### Third Party Certifications
+- [Triplebyte](https://triplebyte.com/tb/azmo-rinsler-eauarea/certificate)
+
 ### Primary Languages & IDE
 - ***Kotlin, Java** via **IntelliJ***
 
